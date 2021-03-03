@@ -2,6 +2,3 @@
 
 **Chair!**
 
-oh, and its she/her
-                                                    
-      
